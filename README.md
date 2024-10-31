@@ -1,5 +1,5 @@
 - 👋 Hello, my name is Manuelle Beaudry-Sylvestre (username: @ManueBSylvestre)
-- 👀 I work as an Aquatic Science Biologist with DFO in the Quebec region. 
+- 👀 I have been working as an Aquatic Science Biologist II with DFO-Québec region since 2021. 
 
 
 <!---
